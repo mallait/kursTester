@@ -1,1 +1,1 @@
-"# kursTester" 
+eliminacje ms 
