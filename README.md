@@ -1,1 +1,5 @@
 eliminacje ms 
+
+
+
+sadewd
